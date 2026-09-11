@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **ricardo123perezhdz56@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-FzDklDosz_ti2xF0XHN3SlTClE5r0PN/view?usp=sharing](https://drive.google.com/file/d/1-FzDklDosz_ti2xF0XHN3SlTClE5r0PN/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1s0htcjXVojMpv6fdpp9mEiQ2SM1w55EO/view?usp=sharing](https://drive.google.com/file/d/1s0htcjXVojMpv6fdpp9mEiQ2SM1w55EO/view?usp=sharing)
 
 - ⚡ Fun fact **I thrive on solving complex algorithmic problems and turning big ideas into scalable software!**
 
